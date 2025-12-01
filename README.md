@@ -125,7 +125,7 @@ This script:
 
 ## Contact
 
-**Dhwanit Kukadiya** - www.linkedin/in/dhwanit-kukadiya
+**Dhwanit Kukadiya** - www.linkedin.com/in/dhwanit-kukadiya
 
 
 ---
